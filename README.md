@@ -14,7 +14,7 @@ I believe coding is a form of magic, and I’m here to share tips and tricks tha
 
 ## 📫 How to reach me...
 - Email: [invoke.hexbaba@gmail.com](mailto:invoke.hexbaba@gmail.com)
-- Instagram: [@hex.baba](https://www.instagram.com/hex.baba)
+- Instagram: [@hex.baba](https://www.instagram.com/hex_baba/)
 
 
 ## ⚡ Fun fact: 
